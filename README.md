@@ -10,5 +10,4 @@ Meus nome Mateus
 
 mateus.guimaraes.lima@escola.pr.gov.br
 
-![image](https://github.com/user-attachments/assets/6f839043-6093-4cd6-8c17-272bb5c115ec)
-
+https://media1.tenor.com/m/umL8_WoM0Z0AAAAd/ronaldo-al-nassr-ronaldo.gif
