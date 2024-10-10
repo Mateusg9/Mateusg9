@@ -10,5 +10,5 @@ Meus nome Mateus
 
 mateus.guimaraes.lima@escola.pr.gov.br
 
-![](![17285626779142579093251307042105](https://github.com/user-attachments/assets/4c60054a-386f-4208-a10b-cbf395f60739)
+![](https://github.com/user-attachments/assets/4c60054a-386f-4208-a10b-cbf395f60739)
 
